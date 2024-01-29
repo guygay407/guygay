@@ -4,6 +4,3 @@ ghgkDFSF
 adadadfsdffse
 xzxdsadsada
 ddwdqwdsadsad
-cddggdg
-afdfdfafsada
-fsdfsafsafa
