@@ -6,5 +6,3 @@ xzxdsadsada
 ddwdqwdsadsad
 xgfgrgrggser
 gfhfxbfb
-xgftzdffds
-vfvdvdxzcz
