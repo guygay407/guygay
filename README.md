@@ -3,7 +3,4 @@ ASAsvxdvfddz
 ghgkDFSF
 adadadfsdffse
 xzxdsadsada
-ddgdfgretweedwdqwdsadsad
-xgfgr
-ngfdf
-cscsasad
+ddgdfgretweedwdq
